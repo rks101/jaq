@@ -15,4 +15,4 @@ Just A Question (JAQ)
 
 ## How can fish hold their breath for so long underwater? something is fishy?  
 
-## You see JAQ (Just A Question), why does this remind you FAQ (Frequestly Asked Questions) while no one asks these often?  
+## You see JAQ (Just A Question), why does this remind you FAQ (Frequently Asked Questions) while not many people ask these often?  
