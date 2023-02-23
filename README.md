@@ -13,7 +13,7 @@ Just A Question (JAQ)
 
 ### If love is blind, should I worry and see the doc because seriously I can see her?  
 
-### How can we trust atoms, if they make up everything?  
+### How can we trust atoms or sub-atomic particles, if they make up everything?  
 
 ### How can fish hold their breath for so long underwater? something is fishy?  
 
