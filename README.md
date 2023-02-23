@@ -5,14 +5,16 @@ Just A Question (JAQ)
 
 ### From which sheep, did we get glass wool?  
 
-## If Oxygen was discovered in 1783, how did people breathe before that?  
+### If Oxygen was discovered in 1783, how did people breathe before that?  
 
-## If a circle is 360 degrees, why cannot I cook rice in one?  
+### If a circle is 360 degrees, why cannot I cook rice in one?  
 
-## If love is blind, should I worry and see the doc because seriously I can see her?  
+### If we need to send a reminder for a reminder to set a reminder to remind a task, which inception level it is at to remind the dream?    
 
-## How can we trust atoms, if they make up everything?  
+### If love is blind, should I worry and see the doc because seriously I can see her?  
 
-## How can fish hold their breath for so long underwater? something is fishy?  
+### How can we trust atoms, if they make up everything?  
 
-## You see JAQ (Just A Question), why does this remind you FAQ (Frequently Asked Questions) while not many people ask these often?  
+### How can fish hold their breath for so long underwater? something is fishy?  
+
+### You see JAQ (Just A Question), why does this remind you FAQ (Frequently Asked Questions) while not many people ask these often?  
