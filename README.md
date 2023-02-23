@@ -1,9 +1,9 @@
 # Just A Question (JAQ) 
 Just A Question (JAQ)
 
-# How can we dual-boot a virtual machine (VM)?  
+### How can we dual-boot a virtual machine (VM)?  
 
-## From which sheep, did we get glass wool?  
+### From which sheep, did we get glass wool?  
 
 ## If Oxygen was discovered in 1783, how did people breathe before that?  
 
